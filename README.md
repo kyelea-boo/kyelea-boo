@@ -56,6 +56,8 @@ When I'm not writing code, you'll likely find me:
 
 - 💃 Dancing — Whether learning new choreography or simply dancing for fun, it's one of my favorite ways to stay active, and express creativity.
 
+- 🎭 Cosplaying — I love the creative process behind costume design, crafting, makeup, and bringing characters to life through performance and photography.
+
 ---
 
 ## Let's Connect
